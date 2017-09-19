@@ -1,0 +1,2 @@
+# -10-SMART-MOBILES
+As technology moves forward and smartphones are become more powerful, their ability to do more has increased. People have different priorities when they buy smartphones. The vibrant colors and displays is what you are looking for, this is the list for you to consult. Here, we put together the best big screen smartphones that you can buy in India. We offer the best combination of features, performance and quality for a phone buyer whose budget is under Rs 15,000.
